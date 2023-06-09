@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do guiita1407 😁
+## Bem-vindo(a) ao perfil do Guita 😁
 
  <div>
    <a href="https://github.com/guiita1407">
